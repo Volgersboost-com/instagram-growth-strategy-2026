@@ -26,3 +26,6 @@ A structured bio, pinned posts and niche clarity increase follow conversion.
 ## Long-Term Growth
 
 Sustainable growth depends on structured experimentation and behavioral understanding.
+---
+
+This strategy framework is supported by tools and growth resources available at [VolgersBoost](https://volgersboost.com/).
